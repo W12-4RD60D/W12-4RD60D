@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @W12-4RD60D
+- 👀 I’m interested in coding and hacking prodigy math game
+- 🌱 I’m currently learning nothing yet
+- 📫 How to reach me jaxthew124rd@gmail.com
